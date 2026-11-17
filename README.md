@@ -52,5 +52,5 @@ Gosto de construir coisas que resolvem problemas reais do dia a dia: serviços q
 
 ### 📫 Contato
 
-- LinkedIn: [seu-linkedin](https://www.linkedin.com/in/SEU-USUARIO)
-- Email: seu.email@exemplo.com
+- LinkedIn: www.linkedin.com/in/breno-gustavo-5816a9327
+- Email: brenogustavoxx@icloud.com
